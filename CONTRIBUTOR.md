@@ -1,1 +1,1 @@
-
+- Gunawan Jati Satria, JL.Malang No 60 GKB Yosowilangun
